@@ -65,7 +65,7 @@ Extra Section, Call it Whatever You Want
 * Human Languages:
 
      * English
-     * Telugu
+     * Telugu 
 
 * Random tidbit
 
