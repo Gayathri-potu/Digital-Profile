@@ -2,9 +2,11 @@ Gayathri Devi Potu
 ============
 
 -------------------     ----------------------------
-Reddy Banda Center                        gayathrirao.2001@gmailcom
-Gurazala                        @twitter_handle
-India                        8712313236
+Reddy Banda Center                      
+gayathrirao.2001@gmailcom
+Gurazala                        
+India                       
+8712313236
 -------------------     ----------------------------
 
 Education
